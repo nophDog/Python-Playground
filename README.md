@@ -1,2 +1,2 @@
 # Python-Playground
-Where there just being here for fun !
+✨ Where there just being here for fun ! 😎
